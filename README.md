@@ -29,4 +29,4 @@ Ideal for consultants, agencies, coaches, lawyers, and businesses that want to a
 
 ## Author
 
-Huzaifa Babar
+Babar Abbas Khokhar
